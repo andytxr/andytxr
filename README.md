@@ -35,12 +35,9 @@ ________________________________________________________________________________
 ![172231769-058f96ac-a0d1-42ce-a22f-6008f1594d46](https://user-images.githubusercontent.com/62211442/172235476-1ca6a30d-dc9f-41c4-b31a-82925ef3a4dc.png)
 ![172231910-27872b92-778d-492f-bb4b-6805214289b8](https://user-images.githubusercontent.com/62211442/172235493-dfa97f1b-635e-4b73-a4c2-4025ed1b5838.png)
 ![172232870-ed7f2b45-a844-43e0-ac9e-c21ae3f727cb](https://user-images.githubusercontent.com/62211442/172235536-1cf864c5-61f3-4f3a-a79a-ebd662babccb.png)
+![com020 (1)](https://user-images.githubusercontent.com/62211442/172236191-a150921f-9fdb-4a10-9b77-541c61cd7a5f.jpg)
+![PROBLEME-AVEC-JAVA-SUR-WINDOWS-10 (1)](https://user-images.githubusercontent.com/62211442/172236572-b9ad0eee-d662-49c6-88ee-913059abd8b2.png)
 
-      
-      
-      
-      
-      
       
                                         
 
