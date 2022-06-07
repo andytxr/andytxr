@@ -38,8 +38,9 @@ ________________________________________________________________________________
 ![com020 (1)](https://user-images.githubusercontent.com/62211442/172236191-a150921f-9fdb-4a10-9b77-541c61cd7a5f.jpg)
 ![PROBLEME-AVEC-JAVA-SUR-WINDOWS-10 (1)](https://user-images.githubusercontent.com/62211442/172236572-b9ad0eee-d662-49c6-88ee-913059abd8b2.png)
 
-      
-                                        
+________________________________________________________________________________________________________________________________________________________________________
 
+## Social Networks:
 
-
+[![](https://user-images.githubusercontent.com/62211442/172486056-77da5316-b75a-43b9-9456-736fee6456d9.png)](https://twitter.com/decosawa)
+[![](https://user-images.githubusercontent.com/62211442/172486888-d180ad28-7d66-4d1c-9563-602553c9b26a.png)](https://www.instagram.com/decotxr_/)
